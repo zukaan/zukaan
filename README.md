@@ -1,4 +1,4 @@
-### Pemimpi yang berhenti untuk bermimpi
+### Ga Tau Nulis Apa
 
 Aku punya mimpi, tapi impian itu akhirnya mati.
 Aku mengucapkan selamat tinggal, tapi aku tidak memiliki tempat untuk kembali.
