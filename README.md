@@ -1,4 +1,10 @@
-### Hi there 👋
+### Pemimpi yang berhenti untuk bermimpi
+
+Aku suka penguin, tapi akhirnya aku membencinya.
+Aku punya mimpi, tapi impian itu akhirnya mati.
+Aku mengucapkan selamat tinggal, tapi aku tidak memiliki tempat untuk kembali.
+Sekarang hanya sepi yang menemani, semua hal yang ku nanti juga tak pernah kembali lagi.
+
 
 <!--
 **zukaan/zukaan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
