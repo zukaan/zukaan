@@ -1,9 +1,5 @@
-### Ga Tau Nulis Apa🥴
-
-Aku punya mimpi, tapi impian itu akhirnya mati.
-Aku mengucapkan selamat tinggal, tapi aku tidak memiliki tempat untuk kembali.
-Sekarang hanya sepi yang menemani, semua hal yang ku nanti juga tak pernah kembali lagi.
-
+### XIOMI PLS JGN NGEBADUT
+KAPAN KERNEL SOURCE RILIS BUAT POCO M4 PRO 4G ANJIR, UDH LAMA NGT INI
 
 <!--
 **zukaan/zukaan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
