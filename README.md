@@ -1,5 +1,5 @@
-### XIOMI PLS JGN NGEBADUT
-KAPAN KERNEL SOURCE RILIS BUAT POCO M4 PRO 4G ANJIR, UDH LAMA NGT INI
+### Ga usah ngewibu jijik
+```https://youtube.com/playlist?list=PLlnbSXElnPez01dwXw2wVkpyk0J3igVyW```
 
 <!--
 **zukaan/zukaan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
